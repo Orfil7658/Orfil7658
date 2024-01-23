@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Orfil7658
+- 👋 Hi, I’m Orfil
 - 👀 I’m interested in Rock Climbing and electric engineering
 - 🌱 I’m currently learning electric engineering
 - 💞️ I’m looking to collaborate on school work
